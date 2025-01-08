@@ -1,2 +1,3 @@
 Nguyễn Văn Minh . MSV : 22810340428
-![Screenshot 2025-01-08 130928](https://github.com/user-attachments/assets/fbb1af59-9bee-42fd-a017-c849e650f748)
+![image](https://github.com/user-attachments/assets/e312a8e1-a7c5-40a3-b2d7-49d87f180f11)
+
